@@ -1,4 +1,4 @@
-##  ⦁═ ZORO 👸 MD═⦁ [BUTTON](./Alexa/queen-alexa.mp4)
+##  ⦁═ ZORO 👸 MD═⦁
 
 
 <div align="center">
