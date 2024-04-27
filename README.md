@@ -33,42 +33,13 @@
 
 
 
-### 🧚‍♀️ALEXA TEAM💫
+### 🧚‍♀️ZORO TEAM💫
 
 
-👨‍💻  EN cuzier *[ Owner ]*
+👨‍💻  EN ZORO *[ Owner ]*
 
-[![Find On Whatsapp ](https://img.shields.io/badge/➤Findon-whatsapp-red.svg)](https://Wa.me/+94770828171)
+[![Find On Whatsapp ](https://img.shields.io/badge/➤Findon-whatsapp-red.svg)](https://Wa.me/+919778158839)
 
-  👨‍💻  ChamodKeshan *[ Creater, helper ]*
-
-[![Find On Whatsapp ](https://img.shields.io/badge/➤Findon-whatsapp-red.svg)](https://Wa.me/+94786825798)
-
-
-👨‍💻  Chethana bro [ Supporter, bug fixer ]
-
-[![Find On Whatsapp ](https://img.shields.io/badge/➤Findon-Whatsapp-blue.svg)](https://Wa.me/+94766598862)
-
-👨‍💻  Thimira bro  [ Helper & information Founder]
-
-[![Find On Whatsapp ](https://img.shields.io/badge/➤Findon-whatsapp-blue.svg)](https://Wa.me/+94781508896)
-
-👨‍💻 Himasha bro   [  Erorr founder ]
-
-[![Find On Whatsapp ](https://img.shields.io/badge/➤Findon-whatsapp-blue.svg)](https://Wa.me/+94762657701)
-
- # ⚡INFORMATION
-   
-````test
-   hey'user you can free deploy Queen Alexa whatsapp bot.
-   Queen Alexa is button system.
-   click to deploy button with deploy your bot.
-  ````
-  ````test
-  ඔයාට පුළුවන් Queen-Alexa whatsapp bot ව නොමිලේම deploy කරගන්න.
-  Queen Alexa සම්පූර්ණයෙන්ම button බොටෙක්.ඒත් ඔයාලට තාම බටන් නෑ.
-  ඔයාට පුළුවන් deploy එක ඔබලා ඔයාගේ බොට්ව install නැත්නම් කරගන්න.
-  ````
  
 **╭──⦁ Simple method ⦁──╮**
 
